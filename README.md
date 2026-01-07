@@ -1,1 +1,0 @@
-# teyzeoglu-teknik-servis
